@@ -1,0 +1,2 @@
+# premium-gum-bichrom-001-gum-bichromate-print-coat-cr
+Tired of losing track of coating formulas, exposure times, and layer sequences? The Gum Bichromate Print &amp; Coat Craft Hub turns your chaotic notebook scribbles into a repeatable, failure-proof system.  This Notion template is built specifically for gum printers who need a reliable way to document every variable—pigment mix ratios, brush stroke patt
